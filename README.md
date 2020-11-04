@@ -4,4 +4,4 @@
 
 ### Add me 📃
 - 🎮 Steam: https://steamcommunity.com/profiles/76561199069997014/
-- 🥶 Discord: Ļ̸͝u̷͜҉̧͜x̨̛̀#8261
+- 🥶 Discord: L̛̕͞ų͘҉͟x̶̷͠҉҉n̸̢̨҉̶̡è̷́s̷̨͝ş#8261
